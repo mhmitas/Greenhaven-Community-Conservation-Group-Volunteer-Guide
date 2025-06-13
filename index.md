@@ -2,13 +2,6 @@
 ## Protecting Nature, Together Since 2010
 ### Volunteer Guide 2024–2025
 
-<iframe
- src="https://udify.app/chatbot/J0jq248vUSYAB0Uq"
- style="width: 100%; height: 100%; min-height: 700px"
- frameborder="0"
- allow="microphone">
-</iframe>
-
 Join the Greenhaven Community Conservation Group (GCCG) to educate our community, restore our ecosystems, and build lasting connections! Since 2010, we’ve united over 1,200 volunteers to protect Greenhaven’s rivers, forests, and wetlands through hands-on projects, school programs, and vibrant community events. Whether you’re cleaning rivers, teaching kids about sustainability, or joining neighbors at Eco-Fest, your efforts create a brighter, greener future.  
 **Get involved today!**  
 [www.greenhaven-conserve.org](http://www.greenhaven-conserve.org) | @GreenhavenConserve on Instagram & X  
